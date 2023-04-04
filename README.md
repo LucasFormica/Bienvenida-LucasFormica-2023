@@ -9,4 +9,4 @@ y juntarme con mis amigo.
 - les dejo una foto del sur.
 
 ![foto](https://user-images.githubusercontent.com/129813664/229692166-53317de0-ce20-4316-8095-00015ba31063.jpg)
-:smile:
+:world:
