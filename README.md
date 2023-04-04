@@ -3,8 +3,9 @@
 - Legajo:176.469-0
 
 - Tengo 23 años, soy egresado de un colegio quimico, arranque la facultad en 2020 con ingenieria civil, un año despues me cambie a ing. en sistemas.
-me gusta pasar mucho tiempo entrenando o haciendo algun deporte
-y juntarme con mis amigo.
+
+- me gusta pasar mucho tiempo entrenando o haciendo algun deporte
+y juntarme con mis amigos muy seguido.
 
 - les dejo una foto del sur🏔️.
 
