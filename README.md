@@ -6,4 +6,4 @@
 me gusta pasar mucho tiempo entrenando o haciendo algun deporte 
 
 
-![foto](https://user-images.githubusercontent.com/129813664/229691357-a0099911-5a91-4e39-bf62-979a18d86994.jpg width=50%)
+![foto](https://user-images.githubusercontent.com/129813664/229691357-a0099911-5a91-4e39-bf62-979a18d86994.jpg)
